@@ -1,0 +1,2 @@
+# Airdrop
+Plis lah aktif
